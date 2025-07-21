@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **b.iamnitchi@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/bogdan-iamnitchi-resume](https://www.canva.com/design/DAGcdpIck-o/sAjPaIKkFfURhgOS19dYOA/view?utm_content=DAGcdpIck-o&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h2fe4e38b76)
+- 📄 Know about my experiences [https://www.canva.com/bogdan-iamnitchi-resume](https://www.canva.com/design/DAGcdpIck-o/sAjPaIKkFfURhgOS19dYOA/view?utm_content=DAGcdpIck-o&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h2fe4e38b76)
 
 - ⚡ Fun fact **when I run out of ideas, listening to music is my solution**
 
